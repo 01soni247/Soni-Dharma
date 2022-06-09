@@ -1,2 +1,2 @@
 # Soni-Dharma
-everything you see is useless
+everything you see here is useless
